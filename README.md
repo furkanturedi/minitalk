@@ -1,0 +1,3 @@
+MİNİ TALK
+MİNİ TALK
+MİNİ TALK
